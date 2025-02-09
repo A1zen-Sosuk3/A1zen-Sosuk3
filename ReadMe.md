@@ -1,5 +1,4 @@
-# 💫 About Me:
-😶‍🌫️Beginner in: <br>🧵FrontEnd development<br>✨UI UX design<br>🎫SEO of websites<br>
+
 
 
 ## 🌐 Socials:
